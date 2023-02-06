@@ -75,6 +75,7 @@ https://www.instagram.com/p/CoUP8efMh8H/
 
 https://www.instagram.com/p/CoUSlF6osSn/
 
+https://www.instagram.com/p/CoT_aLXKcsM/
 
 ## Deprem bölgesi yardım kampanyaları
 
