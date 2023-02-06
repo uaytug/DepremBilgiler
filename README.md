@@ -109,7 +109,12 @@ ORDU YARDIM KAMPANYASI ; ORDU BÜYÜKŞEHİR BELEDİYESİ ANA BİNASINA GETİREB
 
 DÜZCE YARDIM KAMPANYASI ; BELEDİYE ÖNÜNDE BULUNAN YARDIM TIRLARINA GETİREBİLİRSİNİZ.
 
+## Toplanma yerleri - Güvenli bölgeler
+
 ![Logo](https://cdn.discordapp.com/attachments/1072076726085107803/1072150317904433172/IMG_6385.jpg)
+
+https://www.google.com/maps/d/embed?mid=1aQ0TJi4q_46XAZiSLggkbTjPzLGkTzQ&hl=tr&ehbc=2E312F
+
 
 ## Kapalı olan yollar
 
